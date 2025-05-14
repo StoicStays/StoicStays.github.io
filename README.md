@@ -1,0 +1,1 @@
+# StoicStays.github.io
